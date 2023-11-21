@@ -386,7 +386,7 @@ Total deals: 339
 |💵  | [MesoSim](https://blog.deltaray.io/2023-black-friday) | Advanced Options Backtesting service | $60 one time OFF for new annual subscriptions |
 | 🤑 | [CheckCraft](https://apps.apple.com/us/app/checkcraft/id6469945468) | Printing checks from your Mac, iPhone or iPad | 50% OFF on the Mac App Store |
 | 💰 | [Digrin](https://www.digrin.com/portfolio/24-dividend-growth-investing/) | Dividend tracker for stock/ETF investors | 30% OFF with **BLACKFRIDAY2023** |
-
+| 💰 | [Solopreneur Runway Model](byhazellim.gumroad.com/l/runway) | A super simple, guided financial calculator that is designed for your to make high-level decisions about your solopreneur journey | 23% OFF with **BLACKFRIDAY23** |
 
 [⬆️ Go to Top](#table-of-contents)
 
@@ -437,6 +437,7 @@ Total deals: 339
 | 🤑 | [NextAppFast.com](https://nextappfast.com) | Go from Idea to Running App in Minutes!🚀 Our production-ready starter kit gives you a solid foundation to build on, and No-Code App Builder with AI makes it easy to develop your app without writing any code. Just download your custom generated SaaS app's code and fast-forward to launch! ⏩ | 50% Off (no code required, coupon auto applied at checkout) |
 | 🤑 | [Cruip](https://cruip.com) | Beautifully designed Tailwind CSS templates for your next project. | 50% OFF Unlimited Access and 20% OFF all templates |
 | 🤑 | [Classic Glide App Templates](https://sardamit.gumroad.com/l/glide-template-giveaway?layout=profile) | Classic Glide App Templates | Each template for a flat $10 |
+| 💰 | [500 Juicy AI Ideas](https://byhazellim.gumroad.com/l/500AIIdeas) | A giant directory of 500 unique no-code AI ideas for creators and solopreneurs, including problem+solution statement, trends, revenue model, ideal customer profiles for each idea. | Just $9.99, no code required|
 
 [⬆️ Go to Top](#table-of-contents)
 
